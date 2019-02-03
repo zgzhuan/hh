@@ -1,2 +1,2 @@
 # hh
-和
+Life is similar to snow, because every step shows. 
